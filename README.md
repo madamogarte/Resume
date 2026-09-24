@@ -1,4 +1,4 @@
-# 📄 Anna Lyn Ogarte — Resume
+# 📄 Anna Lyn Ogarte - Resume
 
 **IT Professional | Data Analytics | Cybersecurity | AI & Machine Learning**
 
